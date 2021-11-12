@@ -1,4 +1,4 @@
-### My accounts on competitive programming websites:
+### Find me on: 
 
 [Codingame.com](https://www.codingame.com/profile/e4ab3f0294eb09c0f3e5fde1df2cfd1c548418)
 [Hackerrank](https://www.hackerrank.com/mrzero717)
