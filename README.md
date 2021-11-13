@@ -10,3 +10,5 @@
 
 [Triplebyte](https://triplebyte.com/tb/aleksandar-abas-etkdnbq)
 
+### Certificates and Awards:
+- ![ECPC Judge Certificate](https://github.com/aleksandarabas/aleksandarabas/blob/main/noname.jpg)
