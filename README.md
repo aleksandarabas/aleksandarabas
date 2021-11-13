@@ -11,4 +11,21 @@
 [Triplebyte](https://triplebyte.com/tb/aleksandar-abas-etkdnbq)
 
 ### Certificates and Awards:
-- ![ECPC Judge Certificate](https://github.com/aleksandarabas/aleksandarabas/blob/main/noname.jpg)
+-2015
+  +Judge in Egyptian Collegiate Programming Contest
+  +Problem Setter in Egyptian Collegiate Programming Contest
+  +Bronze Medal in International Olympiad of Informatics.
+  +Participation in Asia-Pacific Informatics Olympiad.
+  +1st place in Syrian National Informatics Olympiad
+-2014
+  +2nd place in Arab Collegiate Programming Contest
+  +Steadfast Gurus Award in Arab Collegiate Programming Contest
+  +Problem Setter in Kuwaiti Collegiate Programming Contest
+  +2nd place in Tishreen Collegiate Programming Contest
+  +Participation in Intentional Olympiad in Informatics
+  +Bronze Medal in Asia-Pacific Informatics Olympiad
+  +1st place in Syrian National Informatics Olympiad
+-2013
+  +Participation in Intentional Olympiad in Informatics
+  +Participation in Asia-Pacific Informatics Olympiad.
+  +3rd  place in Syrian National Informatics Olympiad
