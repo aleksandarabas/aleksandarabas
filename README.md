@@ -62,3 +62,7 @@
   + Participation in Intentional Olympiad in Informatics
   + Participation in Asia-Pacific Informatics Olympiad.
   + 3rd  place in Syrian National Informatics Olympiad
+
+### Quick Computational Linguistics Tips For Interperters
+- Similes are in O(2^n) ك 
+- Quotations, nested quotations and substitutions are in O(N^3) ق
