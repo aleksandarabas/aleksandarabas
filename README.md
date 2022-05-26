@@ -1,5 +1,7 @@
+Name: Александър Абас
+DOB: 13/09/1996
+POB: Varna, Bulgaria
 ### Find me on: 
-
 [Codingame.com](https://www.codingame.com/profile/e4ab3f0294eb09c0f3e5fde1df2cfd1c548418)
 [Hackerrank](https://www.hackerrank.com/mrzero717)
 [Codeforces](https://codeforces.cc/profile/Alex7)
