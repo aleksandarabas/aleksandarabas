@@ -5,9 +5,6 @@ TAG: J (yot) A (a) V (vei); yotav.
 First responder to spectre, arm technologies UK.
 Also, to op warpspeed. 
 ### Find me on: 
-IN CASE IT IS NOT BLEADINGLY OBVIOUS, DESPITE THE FACT THAT THE ASSETS DISPLAYED HERE ARE PROBBABLY WORTH MORE THAN THE PLANET I STILL HAVENT MADE ANY MONEY DIRECTLY OTHER THAN EMPLOYMENT LISTED BELOW AND I HAVE BEEN UNEMPLOYED FOR LIKE A YEAR. YOU PEOPLE SUCK AT COLLECTING TAXES, MAKING MONEY AND RUNNING EMPIRES AND ABSOLUTELY REFUSE TO COOPERATE ON ANYTHING CONSISTENTLY. WEHAT AM I SUPPOSED TO DO HERE?  
-(ie the your legal complications have precluded me from doing anything and I have been busy helping with the crisis at hand which obviously don't include earnings especially if I have to assist both sides of multiple cold and hot conflicts. I am a dual citizen Syrian-Bulgarian.) 
-Instead of trying to find a mistake I did somewhere or I don't know, blindly aim at hoping at prosecuting me for tax evasion on assummed income, how about you do something useful and make the paperwork doable. BECAUSE AS IT STANDS IT IS IMPOSSIBLE TO LEGALLY CLEAR. I CAN PROVE IT TO YOU WITH MATH IF YOU WANT. 
 [For governments, bankers and  intel people here I did uour job for you also] (https://www.pinterest.com/aleksandarabas/pins/)
 [Codingame.com](https://www.codingame.com/profile/e4ab3f0294eb09c0f3e5fde1df2cfd1c548418)
 [Hackerrank](https://www.hackerrank.com/mrzero717)
