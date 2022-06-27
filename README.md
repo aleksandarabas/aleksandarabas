@@ -3,7 +3,7 @@ DOB: 13/09/1996
 POB: Varna, Bulgaria 
 TAG: J (yot) A (a) V (vei); yotav.
 First responder to spectre, arm technologies UK.
-Also, to op warpspeed. 
+Also, to op warpspeed. <Legio XIII Gemina> 
 ### Find me on: 
 [For governments, bankers and  intel people here I did uour job for you also] (https://www.pinterest.com/aleksandarabas/pins/)
 [Codingame.com](https://www.codingame.com/profile/e4ab3f0294eb09c0f3e5fde1df2cfd1c548418)
