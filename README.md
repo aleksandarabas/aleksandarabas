@@ -1,3 +1,4 @@
+(YES I HAVE PHYSICAL PAPER DOCUMENTATION FOR ALL OF THOSE, except Amherst college because covid hit and the databases professor was an italian-german spy who refused to admit that I knew databases, but my that was because everything was under the WW3 level cyberattacks so he probably didn't get to observe much, he is still a German spy tho (old ex-soviet jokes to describe a certain type of arrogant rudeness that ends compromising everything at some point or sth)... anyway... Oh btw Syria means land of the Sun so technically it's proper definition is just like at least all of earth and at most all of the solar system up to the sun which is why your policy strats aren't solvent given the latent subconscious architectures.) but that doesn't mean that you can't just drop by and say hi or go get coffee or sth like normal ppl.. jezzzzzuz
 Name: Александър Абас
 DOB: 13/09/1996
 POB: Varna, Bulgaria 
